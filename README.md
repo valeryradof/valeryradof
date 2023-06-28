@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @valeryradof
+- 👀 I’m interested in game
+- 🌱 I’m currently learning univer
+- 💞️ I’m looking to collaborate on dapps
+- Che Che
