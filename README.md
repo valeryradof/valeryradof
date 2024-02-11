@@ -2,4 +2,4 @@
 - 👀 I’m interested in game
 - 🌱 I’m currently learning univer
 - 💞️ I’m looking to collaborate on dapps
-- Che che, mister che
+- Che che, mister che master
