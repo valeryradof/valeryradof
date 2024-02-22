@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning univer
 - 💞️ I’m looking to collaborate on dapps
 - Che che, mister che master soon
-- mint and creat clime
+- mint and creat clime price
