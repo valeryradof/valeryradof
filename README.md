@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on dapps
 - Che che, mister che master soon
 - mint and creat clime price
+- camelot education 
