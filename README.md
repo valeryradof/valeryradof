@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning univer
 - 💞️ I’m looking to collaborate on dapps and games
 - Che che, mister che master soon
-- mint and creat clime price
+- mint and creat clime phone price
 - camelot education advokat
 - i am molodec and krasaucheg
 - 27 marth Rom2FA
