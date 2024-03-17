@@ -2,7 +2,7 @@
 - 👀 I’m interested in game
 - 🌱 I’m currently learning univer
 - 💞️ I’m looking to collaborate on dapps and games
-- Che che, mister che master soon
+- Che che, mister che master soon subedei
 - mint and creat clime phone prices
 - camelot education advokat
 - i am molodec and krasaucheg
