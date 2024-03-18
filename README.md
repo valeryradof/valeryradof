@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @valeryradof
-- 👀 I’m interested in game
+- 👀 I’m interested in game monkey
 - 🌱 I’m currently learning univer
 - 💞️ I’m looking to collaborate on dapps and games
 - Che che, mister che master soon subedei
