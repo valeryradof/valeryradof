@@ -6,5 +6,5 @@
 - mint and creat clime phone prices
 - camelot education advokat
 - i am molodec and krasaucheg
-- 27 marth Rom 2FA factory
+- 27 marth Rom 2FA factory fan
 - overtime soon creamer camel & camey
