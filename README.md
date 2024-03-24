@@ -7,4 +7,4 @@
 - camelot education advokat reward
 - i am molodec and krasaucheg
 - 27 marth Rom 2FA factory fan zone
-- overtime soon creamer camel & camey milo
+- overtime soon creamer camel & camey milovich
