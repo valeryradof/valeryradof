@@ -6,5 +6,5 @@
 - mint and creat clime phone prices
 - camelot education advokat reward
 - i am molodec and krasaucheg
-- 27 marth Rom 2FA factory fan zone
+- 27 marth Rom 2FA factory fan zone final
 - overtime soon creamer camel & camey milovich
