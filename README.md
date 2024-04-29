@@ -12,3 +12,4 @@
 - miss you talk hello
 - taken 3 basketball game
 - tower defense
+-  c++ and delphy
