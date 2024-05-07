@@ -12,4 +12,4 @@
 - miss you talk hello china vehicle
 - taken 3 basketball game
 - tower defense fly month
--  c++ and delphy minus
+-  c++ and delphy minus read
