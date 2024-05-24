@@ -14,4 +14,4 @@
 - tower defense fly month every
 -  c++ and delphy minus read nostra
 - apes pol asty martini love meet
-- shift thanks about main
+- shift thanks about main minimum
