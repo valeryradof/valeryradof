@@ -15,3 +15,4 @@
 -  c++ and delphy minus read nostra
 - apes pol asty martini love meet
 - shift thanks about main minimum exit
+- yellow wallet
