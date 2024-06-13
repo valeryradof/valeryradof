@@ -15,4 +15,4 @@
 -  c++ and delphy minus read nostra pharaon
 - apes pol asty martini love meet england
 - shift thanks about main minimum exit
-- yellow wallet master 22:19 alchemy
+- yellow wallet master 22:19 alchemy play
