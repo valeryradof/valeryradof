@@ -14,5 +14,5 @@
 - tower defense fly month every week folder
 -  c++ and delphy minus read nostra pharaon
 - apes pol asty martini love meet england
-- shift thanks about main minimum exit
+- shift thanks about main minimum exit come
 - yellow wallet master 22:19 alchemy play
