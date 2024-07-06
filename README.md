@@ -12,7 +12,7 @@
 - miss you talk hello china vehicle proof car
 - taken 3 basketball game strange metis setup
 - tower defense fly month every week folder
--  c++ and delphy minus read nostra pharaon
+-  c++ and delphy minus read nostra pharaon 2.0
 - apes pol asty martini love meet england
 - shift thanks app about wanted main minimum exit come
 - yellow wallet master 22:19 alchemy play uoren
