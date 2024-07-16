@@ -15,5 +15,5 @@
 -  c++ and delphy minus read nostra pharaon 2.0
 - apes pol asty martini love meet england founder
 - shift thanks app about wanted main minimum exit come
-- yellow wallet master 22:19 alchemy play uoren
+- yellow wallet master 22:19 alchemy play uoren lafet
 - replaced can be month frame slime abstract set reset
